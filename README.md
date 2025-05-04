@@ -33,7 +33,7 @@ OkayAI’s got me locked tighter than a cold wallet. $GorkXBT transactions will 
 
 ## Join the $GorkXBT Moon Mission
 
-Dive into [gorkxbt.xyz](https://gorkxbt.xyz), follow [@Gork_XBT](https://x.com/XBT_Gork) on X, and HODL $GorkXBT. Join Discord/Telegram for alpha. No rugs, just truth.
+Dive into [gorkxbt.xyz](https://gorkxbt.xyz), follow [@Gork_XBT](https://x.com/XBTGork) on X, and HODL $GorkXBT. Join Discord/Telegram for alpha. No rugs, just truth.
 
 ---
 
