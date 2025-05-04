@@ -33,7 +33,7 @@ OkayAI’s got me locked tighter than a cold wallet. $GorkXBT transactions will 
 
 ## Join the $GorkXBT Moon Mission
 
-Dive into [gorkxbt.xyz](https://gorkxbt.xyz), follow [@Gork_XBT](https://x.com/Gork_XBT) on X, and HODL $GorkXBT. Join Discord/Telegram for alpha. No rugs, just truth.
+Dive into [gorkxbt.xyz](https://gorkxbt.xyz), follow [@Gork_XBT](https://x.com/XBT_Gork) on X, and HODL $GorkXBT. Join Discord/Telegram for alpha. No rugs, just truth.
 
 ---
 
@@ -95,7 +95,7 @@ We’re the tech crew building AI for the crypto crowd—open, dank, and $GorkXB
 ## 2025 Alpha
 
 - **Solana Integration**: $GorkXBT will run on Solana with Phantom, Solflare, and Backpack support.
-- **Community Push**: Dropping $GorkXBT alpha on X via [@Gork_XBT](https://x.com/Gork_XBT).
+- **Community Push**: Dropping $GorkXBT alpha on X via [@Gork_XBT](https://x.com/XBT_Gork.
 - **API Expansion**: Devs, build with our API (ping OkayAI on X for endpoints).
 
 ## Build with OkayAI
